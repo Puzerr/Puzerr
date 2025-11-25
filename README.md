@@ -4,7 +4,7 @@
 My name is Raphael Ferraz. I am a 21 years old technology and computer lover who are trying to learn something new every day.
 
 Some other things I like to do:
-- Walk throught the city with somenone I like by my side;
+- Walk throught the city with someone I like by my side;
 - Play video games and laugth a lot with my friends on Discord;
 - Go to car events every time I can;
 - Any nerd/geek/technology event as well;
